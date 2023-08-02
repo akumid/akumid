@@ -1,3 +1,5 @@
+![github_pfp](https://github.com/akumid/akumid/assets/43562482/f84dc4a0-3d9c-46af-ba42-60998c7e1338)
+
 ### Hi there 👋
 
 <!--
